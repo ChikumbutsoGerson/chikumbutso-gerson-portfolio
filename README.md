@@ -1,1 +1,1 @@
-# ethan-portfolio-starter# chikumbutso-gerson-portfolio
+# chikumbutso-gerson-portfolio
